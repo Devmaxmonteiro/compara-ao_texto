@@ -1,0 +1,1 @@
+# compara-ao_texto
